@@ -1,4 +1,4 @@
-# LZD__asuX
+# Module magisk lazada chek
 
 Dm for me:
-> https://t.me/Akuh_sopoh
+> https://t.me/Bolone_sengkuni
